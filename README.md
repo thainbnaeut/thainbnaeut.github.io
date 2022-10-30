@@ -23,4 +23,4 @@ DIMANCHE
 Notre plus beau cadeau de mariage, ce sera à n'en pas douter votre présence. Mais si vous souhaitez nous témoigner davantage: une urne sera à disposition pour vous permettre de participer à notre voyage de noces. 
 
 ## Voyage de noces
-![Destination](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/destination.jpeg?raw=true)
+![Destination](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/destination.jpg?raw=true)
