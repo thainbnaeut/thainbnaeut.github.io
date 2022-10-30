@@ -1,5 +1,4 @@
-# thainbnaeut.github.io
-Mariage d'A. et T.
+# Mariage d'A. et T.
 
 ![Chateau](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/ch.jpeg?raw=true)
 
