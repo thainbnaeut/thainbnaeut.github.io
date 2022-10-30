@@ -1,6 +1,8 @@
 # thainbnaeut.github.io
 Mariage d'A. et T.
 
+![Alt text](/ch.jpg?raw=true "Title")
+
 ## Informations pratiques
 
 Plan de la journée:
