@@ -1,5 +1,5 @@
 # thainbnaeut.github.io
-Mariage d'Anne et Thibaut
+Mariage d'A. et T.
 
 ## Informations pratiques
 
