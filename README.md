@@ -17,4 +17,4 @@ DIMANCHE
 - 12h - Brunch
 
 ## Liste de mariage
-Notre plus beau cadeau de mariage, ce sera à n'en pas douter votre présence. Mais si vous souhaitez nous témoigner davantage: un urne sera à disposition pour vous permettre de participer à notre voyage de noces. 
+Notre plus beau cadeau de mariage, ce sera à n'en pas douter votre présence. Mais si vous souhaitez nous témoigner davantage: une urne sera à disposition pour vous permettre de participer à notre voyage de noces. 
