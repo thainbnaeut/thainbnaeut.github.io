@@ -1,7 +1,7 @@
 # thainbnaeut.github.io
 Mariage d'A. et T.
 
-![Alt text](/ch.jpg?raw=true "Title")
+![Chateau]([/ch.jpg](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/ch.jpeg)?raw=true "Title")
 
 ## Informations pratiques
 
