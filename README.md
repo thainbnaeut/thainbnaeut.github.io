@@ -10,11 +10,11 @@ Ce site sera mis à jour à mesure que nous avançons dans les préparatifs.
 Plan de la journée:
 
 SAMEDI
-- 13h30 - Mairie 
-- 15h - Cérémonie laïque (20min en voiture de l'hôtel de ville)
-- 17h - Vin d'honneur
-- 19h - Dîner
-- 23h - Soirée dansante 
+- 13h30 - Mariage civil à la Mairie 
+- 15h00 - Cérémonie laïque (20min en voiture de l'hôtel de ville)
+- 17h00 - Vin d'honneur
+- 19h00 - Dîner
+- 23h00 - Soirée dansante 
 
 DIMANCHE
 - 12h - Brunch
