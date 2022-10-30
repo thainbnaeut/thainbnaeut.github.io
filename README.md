@@ -15,7 +15,6 @@ SAMEDI
 - 23h - Soirée dansante 
 
 DIMANCHE
-- 12h - Libération des chambres
 - 12h - Brunch
 
 ## Liste de mariage
