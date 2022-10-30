@@ -11,7 +11,7 @@ Plan de la journée:
 
 SAMEDI
 - 13h30 - Mairie 
-- 15h - Cérémonie laique (20min en voiture de l'hôtel de ville)
+- 15h - Cérémonie laïque (20min en voiture de l'hôtel de ville)
 - 17h - Vin d'honneur
 - 19h - Dîner
 - 23h - Soirée dansante 
