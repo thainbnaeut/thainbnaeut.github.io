@@ -19,6 +19,8 @@ SAMEDI
 DIMANCHE
 - 12h - Brunch
 
+Nous avons décidé d'organiser cet évènement entre adultes. Pour ceux d'entre vous qui avez des enfants, nous avons conscience de vous demander un effort supplémentaire d'organisation dont vous nous serons très reconnaissants. 
+
 ## Liste de mariage
 Notre plus beau cadeau de mariage, ce sera à n'en pas douter votre présence. Mais si vous souhaitez nous témoigner davantage: une urne sera à disposition pour vous permettre de participer à notre voyage de noces. 
 
