@@ -1,5 +1,7 @@
 # Mariage d'A. et T.
 
+Vous remarquerez notre inventivité pour rester un peu anonymes! ;) 
+
 ![Chateau](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/ch.jpeg?raw=true)
 
 ## Informations pratiques
