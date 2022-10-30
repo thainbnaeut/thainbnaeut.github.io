@@ -3,7 +3,7 @@ Mariage d'Anne et Thibaut
 
 ## Informations pratiques
 
-Plan de la journee:
+Plan de la journée:
 - Mairie 
 - Cérémonie laique
 - Vin d'honneur
