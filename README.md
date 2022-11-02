@@ -23,6 +23,8 @@ DIMANCHE
 
 Nous avons décidé d'organiser cet évènement entre adultes. Pour ceux d'entre vous qui avez des enfants, nous avons conscience de vous demander un effort supplémentaire d'organisation dont vous nous serons très reconnaissants. 
 
+Une partie des invités pourra loger sur place pour la nuit de samedi à dimanche (carton spécifique prévu dans le faire-part d'invitation). N'hésitez pas à nous contacter pour nous communiquer votre préférence pour une certaine catégorie de chambre: standard, supérieure, deluxe, junior suite ou suite afin que nous en tenions compte dans le plan de chambres. Ceux qui souhaitent prolonger leur séjour pour la nuit du vendredi et/ou celle du dimanche peuvent nous contacter pour la réservation. 
+
 ## Liste de mariage
 Notre plus beau cadeau de mariage, ce sera à n'en pas douter votre présence. Mais si vous souhaitez nous témoigner davantage: une urne sera à disposition pour vous permettre de participer à notre voyage de noces. 
 
