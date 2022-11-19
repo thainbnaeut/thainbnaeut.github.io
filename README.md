@@ -31,7 +31,7 @@ Une partie des invités pourra loger sur place pour la nuit de samedi à dimanch
 
 Pour ceux qui veulent profiter de ce séjour à Dijon pour visiter les alentours, nous vous avons préparé quelques éléments incontournables:
 
-![Centre](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/centre-ville-dijon.jpg?raw=true)
+![Centre](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/centre-ville-dijon.png?raw=true)
 
 - Le Palais des ducs de Bourgogne
 
