@@ -51,6 +51,10 @@ Crédits: Site de l'office du tourisme de Dijon: https://www.destinationdijon.co
 
 Beaune est également une ville à visiter!
 
+- Le Clos Vougeot
+
+- Les Hospices de Beaune
+
 ## Liste de mariage
 Notre plus beau cadeau de mariage, ce sera à n'en pas douter votre présence. Mais si vous souhaitez nous témoigner davantage: une urne sera à disposition pour vous permettre de participer à notre voyage de noces. 
 
