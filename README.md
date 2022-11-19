@@ -54,9 +54,11 @@ Crédits: Site de l'office du tourisme de Dijon: https://www.destinationdijon.co
 Beaune est également une ville à visiter!
 
 - Le Château du Clos de Vougeot
+
 ![Vougeot](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/chateau-du-clos-de-vougeot.jpg?raw=true) 
 
 - Les Hospices de Beaune
+
 ![Beaune](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/beaune.jpg?raw=true) 
 
 ## Liste de mariage
