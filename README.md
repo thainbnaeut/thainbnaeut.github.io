@@ -33,11 +33,11 @@ Pour ceux qui veulent profiter de ce séjour à Dijon pour visiter les alentours
 
 ![Centre](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/centre-ville-dijon.jpg?raw=true)
 
-- Le palais des ducs de Bourgogne
+- Le Palais des ducs de Bourgogne
 
 ![Palais](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/palais-ducs.jpg?raw=true)
 
-- Le musée des Beaux-Arts de Dijon
+- Le Musée des Beaux-Arts de Dijon
 
 - La Cité Internationale de la Gastronomie et du Vin
 
