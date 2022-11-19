@@ -26,7 +26,10 @@ Nous avons décidé d'organiser cet évènement entre adultes. Pour ceux d'entre
 Une partie des invités pourra loger sur place pour la nuit de samedi à dimanche (carton spécifique prévu dans le faire-part d'invitation). N'hésitez pas à nous communiquer votre préférence pour une certaine catégorie de chambre (standard, supérieure, deluxe, junior suite ou suite) afin que nous en tenions compte dans le plan de chambres. Ceux qui souhaitent prolonger leur séjour pour la nuit du vendredi et/ou celle du dimanche peuvent nous contacter pour la réservation. 
 
 ## Points d'intérêts à visiter à et autour de Dijon
+![Rude](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/rude?raw=true)
+
 Pour ceux qui veulent profiter de ce séjour à Dijon pour visiter les alentours, nous vous avons préparé quelques éléments incontournables:
+![Centre](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/centre-ville-dijon?raw=true)
 
 - Le palais des ducs de Bourgogne
 ![Palais](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/palais-ducs.jpg?raw=true)
@@ -36,6 +39,7 @@ Pour ceux qui veulent profiter de ce séjour à Dijon pour visiter les alentours
 - La Cité Internationale de la Gastronomie et du Vin
 
 - Les Halles de Dijon
+![Halles](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/halles.jpg?raw=true)
 
 Crédits: Site de l'office du tourisme de Dijon: https://www.destinationdijon.com/
 
