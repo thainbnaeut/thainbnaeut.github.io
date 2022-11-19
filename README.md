@@ -27,10 +27,19 @@ Une partie des invités pourra loger sur place pour la nuit de samedi à dimanch
 
 ## Points d'intérêts à visiter à et autour de Dijon
 Pour ceux qui veulent profiter de ce séjour à Dijon pour visiter les alentours, nous vous avons préparé quelques éléments incontournables:
+
 - Le palais des ducs de Bourgogne
 ![Palais](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/palais-ducs.jpg?raw=true)
 
-Site de l'office du tourisme de Dijon: https://www.destinationdijon.com/
+- Le musée des Beaux-Arts de Dijon
+
+- La Cité Internationale de la Gastronomie et du Vin
+
+- Les Halles de Dijon
+
+Crédits: Site de l'office du tourisme de Dijon: https://www.destinationdijon.com/
+
+Beaune est également une ville à visiter!
 
 ## Liste de mariage
 Notre plus beau cadeau de mariage, ce sera à n'en pas douter votre présence. Mais si vous souhaitez nous témoigner davantage: une urne sera à disposition pour vous permettre de participer à notre voyage de noces. 
