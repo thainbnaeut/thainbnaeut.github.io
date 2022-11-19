@@ -43,6 +43,8 @@ Pour ceux qui veulent profiter de ce séjour à Dijon pour visiter les alentours
 
 - La Cité Internationale de la Gastronomie et du Vin
 
+![Cite](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/cite.jpg?raw=true) 
+
 - Les Halles de Dijon
 
 ![Halles](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/halles.jpg?raw=true)
