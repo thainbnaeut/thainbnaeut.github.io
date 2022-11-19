@@ -27,7 +27,7 @@ Une partie des invités pourra loger sur place pour la nuit de samedi à dimanch
 
 ## Points d'intérêts à visiter à et autour de Dijon
 
-![Rude](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/rude.png?raw=true)
+![Rude](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/rude.jpg?raw=true)
 
 Pour ceux qui veulent profiter de ce séjour à Dijon pour visiter les alentours, nous vous avons préparé quelques éléments incontournables:
 
