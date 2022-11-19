@@ -39,6 +39,8 @@ Pour ceux qui veulent profiter de ce séjour à Dijon pour visiter les alentours
 
 - Le Musée des Beaux-Arts de Dijon
 
+![Musee](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/rozenn-krebel-132.jpg?raw=true) 
+
 - La Cité Internationale de la Gastronomie et du Vin
 
 - Les Halles de Dijon
