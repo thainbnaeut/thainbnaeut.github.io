@@ -34,6 +34,7 @@ Pour ceux qui veulent profiter de ce séjour à Dijon pour visiter les alentours
 ![Centre](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/centre-ville-dijon.jpg?raw=true)
 
 - Le palais des ducs de Bourgogne
+
 ![Palais](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/palais-ducs.jpg?raw=true)
 
 - Le musée des Beaux-Arts de Dijon
@@ -41,6 +42,7 @@ Pour ceux qui veulent profiter de ce séjour à Dijon pour visiter les alentours
 - La Cité Internationale de la Gastronomie et du Vin
 
 - Les Halles de Dijon
+
 ![Halles](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/halles.jpg?raw=true)
 
 Crédits: Site de l'office du tourisme de Dijon: https://www.destinationdijon.com/
