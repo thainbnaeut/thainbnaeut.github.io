@@ -35,7 +35,21 @@ Pour la soirée, vous avez la possibilité d'indiquer vos titres favoris que vou
 Vous avez plusieurs solutions de parking pour votre venue à la mairie. Note: le samedi est jour de marché (de 8h à 13h)!  
 TBA
 
-Vous avez également la possibilité de vous garer à un parking relais et de vous rendre à la mairie en Tram (ticket à prendre en borne à l'arrêt de tram ou par paiement sans contact via carte bancaire à bord - attention une carte bancaire par ticket).  
+Vous avez également la possibilité de vous garer à un parking relais et de vous rendre à la mairie en Tram (ticket à prendre en borne à l'arrêt de tram ou par paiement sans contact via carte bancaire à bord - attention une carte bancaire par ticket). 
+
+### Transport pour arriver à Dijon et au Château
+
+- Paris - Dijon: 3h30 en voiture; 1h40 en train
+- Bourg-en-Bresse - Dijon: 1h45 en voiture; 2h45 en train
+- Lyon - Dijon: 2h en voiture, 2h en train 
+- Genève - Dijon: 2h45 en voiture; 2h45 en train pour l'option la plus courte
+- Zurich - Dijon: 2h30 en voiture; 2h30 en train
+- Annecy - Dijon: 3h en voiture; 4h en train
+- Montpellier - Dijon: 5h15 en voiture; 3h45 en train
+- Metz - Dijon: 2h45 en voiture; 4h30 en train
+- Marseille - Dijon: 5h15 en voiture; 4h en train
+- Bordeaux - Dijon: 7h en voiture; 6h en train
+- Vannes - Dijon: 7h15 en voiture; 6h en train
 
 ## Points d'intérêts à visiter à et autour de Dijon
 
