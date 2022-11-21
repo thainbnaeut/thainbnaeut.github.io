@@ -7,7 +7,7 @@ Ce site sera mis à jour à mesure que nous avançons dans les préparatifs.
 
 ## Informations pratiques
 
-Plan de la journée:
+### Plan de la journée
 
 SAMEDI
 - 13h30 - Mariage civil à la Mairie de Dijon
@@ -21,9 +21,14 @@ DIMANCHE
 - 11h00 - Chambres check-out
 - 11h30 - Brunch
 
+### Adults-only
 Nous avons décidé d'organiser cet évènement entre adultes. Pour ceux d'entre vous qui avez des enfants, nous avons conscience de vous demander un effort supplémentaire d'organisation dont vous nous serons très reconnaissants. 
 
+### Hébergement
 Une partie des invités pourra loger sur place pour la nuit de samedi à dimanche (carton spécifique prévu dans le faire-part d'invitation). N'hésitez pas à nous communiquer votre préférence pour une certaine catégorie de chambre (standard, supérieure, deluxe, junior suite ou suite) afin que nous en tenions compte dans le plan de chambres. Ceux qui souhaitent prolonger leur séjour pour la nuit du vendredi et/ou celle du dimanche peuvent nous contacter pour la réservation. 
+
+### Dance Floor
+Pour la soirée, vous avez la possibilité d'indiquer vos titres favoris que vous voudriez absolument entendre passer sur le dance floor! Lien du fichier partagé: https://lite.framacalc.org/ul9qy3x2t8-9xqa 
 
 ## Points d'intérêts à visiter à et autour de Dijon
 
