@@ -10,8 +10,8 @@ Ce site sera mis à jour à mesure que nous avançons dans les préparatifs.
 ### Plan de la journée
 
 SAMEDI
-- 13h30 - Mariage civil à la Mairie de Dijon
-- 15h00 - Cérémonie laïque (20min en voiture de l'hôtel de ville)
+- 13h30 - Mariage civil à la Mairie de Dijon (cf. plus bas pour les solutions de parking)
+- 15h00 - Cérémonie laïque (20 min en voiture de l'hôtel de ville)
 - 16h00 - Chambres check-in
 - 17h00 - Vin d'honneur
 - 19h00 - Dîner
@@ -29,6 +29,12 @@ Une partie des invités pourra loger sur place pour la nuit de samedi à dimanch
 
 ### Dance Floor
 Pour la soirée, vous avez la possibilité d'indiquer vos titres favoris que vous voudriez absolument entendre passer sur le dance floor! Lien du fichier partagé: https://lite.framacalc.org/ul9qy3x2t8-9xqa 
+
+### Parking pour la mairie
+Vous avez plusieurs solutions de parking pour votre venue à la mairie. Note: le samedi est jour de marché (de 8h à 13h)!  
+TBA
+
+Vous avez également la possibilité de vous garer à un parking relais et de vous rendre à la mairie en Tram (ticket à prendre en borne à l'arrêt de tram ou par paiement sans contact via carte bancaire à bord - attention une carte bancaire par ticket)  
 
 ## Points d'intérêts à visiter à et autour de Dijon
 
