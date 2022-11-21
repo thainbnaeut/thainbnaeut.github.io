@@ -28,7 +28,8 @@ Nous avons décidé d'organiser cet évènement entre adultes. Pour ceux d'entre
 Une partie des invités pourra loger sur place pour la nuit de samedi à dimanche (carton spécifique prévu dans le faire-part d'invitation). N'hésitez pas à nous communiquer votre préférence pour une certaine catégorie de chambre (standard, supérieure, deluxe, junior suite ou suite) afin que nous en tenions compte dans le plan de chambres. Ceux qui souhaitent prolonger leur séjour pour la nuit du vendredi et/ou celle du dimanche peuvent nous contacter pour la réservation. 
 
 ### Dance Floor
-Pour la soirée, vous avez la possibilité d'indiquer vos titres favoris que vous voudriez absolument entendre passer sur le dance floor! Lien du fichier partagé: https://lite.framacalc.org/ul9qy3x2t8-9xqa 
+Pour la soirée, vous avez la possibilité d'indiquer vos titres favoris que vous voudriez absolument entendre passer sur le dance floor! Lien du fichier partagé: 
+[Playlist](https://lite.framacalc.org/ul9qy3x2t8-9xqa)  
 
 ### Parking pour la mairie
 Vous avez plusieurs solutions de parking pour votre venue à la mairie. Note: le samedi est jour de marché (de 8h à 13h)!  
