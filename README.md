@@ -34,7 +34,7 @@ Pour la soirée, vous avez la possibilité d'indiquer vos titres favoris que vou
 Vous avez plusieurs solutions de parking pour votre venue à la mairie. Note: le samedi est jour de marché (de 8h à 13h)!  
 TBA
 
-Vous avez également la possibilité de vous garer à un parking relais et de vous rendre à la mairie en Tram (ticket à prendre en borne à l'arrêt de tram ou par paiement sans contact via carte bancaire à bord - attention une carte bancaire par ticket)  
+Vous avez également la possibilité de vous garer à un parking relais et de vous rendre à la mairie en Tram (ticket à prendre en borne à l'arrêt de tram ou par paiement sans contact via carte bancaire à bord - attention une carte bancaire par ticket).  
 
 ## Points d'intérêts à visiter à et autour de Dijon
 
