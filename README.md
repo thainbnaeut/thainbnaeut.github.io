@@ -24,6 +24,9 @@ DIMANCHE
 ### Adults-only
 Nous avons décidé d'organiser cet évènement entre adultes. Pour ceux d'entre vous qui avez des enfants, nous avons conscience de vous demander un effort supplémentaire d'organisation dont vous nous serons très reconnaissants. 
 
+### Dress code
+... Non, c'est une blague, il n'y en a pas! A part peut-etre éviter le blanc? ;) 
+
 ### Hébergement
 Une partie des invités pourra loger sur place pour la nuit de samedi à dimanche (carton spécifique prévu dans le faire-part d'invitation). N'hésitez pas à nous communiquer votre préférence pour une certaine catégorie de chambre (standard, supérieure, deluxe, junior suite ou suite) afin que nous en tenions compte dans le plan de chambres. Ceux qui souhaitent prolonger leur séjour pour la nuit du vendredi et/ou celle du dimanche peuvent nous contacter pour la réservation. 
 
