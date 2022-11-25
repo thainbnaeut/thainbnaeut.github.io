@@ -33,6 +33,7 @@ Une partie des invités pourra loger sur place pour la nuit de samedi à dimanch
 ### Dance Floor
 Pour la soirée, vous avez la possibilité d'indiquer vos titres favoris que vous voudriez absolument entendre passer sur le dance floor! Lien du fichier partagé: 
 [Playlist](https://lite.framacalc.org/ul9qy3x2t8-9xqa)  
+Seb & Caro mettront aussi à disposition des invités un tableau à craie pendant la soirée pour les envies de dernière minute! 
 
 ### Parking pour la mairie
 Vous avez plusieurs solutions de parking pour votre venue à la mairie. Note: le samedi est jour de marché (de 8h à 13h)!  
