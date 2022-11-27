@@ -3,6 +3,8 @@
 Vous remarquerez notre inventivité pour rester un peu anonymes! ;) 
 Ce site sera mis à jour à mesure que nous avançons dans les préparatifs. 
 
+Nous vous invitons à célébrer notre mariage au [Château de Saulon](https://www.chateau-saulon.com/)!
+
 ![Chateau](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/ch.jpeg?raw=true)
 
 Raccourcis:
