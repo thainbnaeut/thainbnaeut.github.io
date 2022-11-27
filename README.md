@@ -5,7 +5,7 @@ Ce site sera mis à jour à mesure que nous avançons dans les préparatifs.
 
 ![Chateau](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/ch.jpeg?raw=true)
 
-Sommaire
+Raccourcis:
 - [Informations pratiques](#informations-pratiques)
   * [Adults-only](#adults-only)
   * [Dress code](#dress-code)
