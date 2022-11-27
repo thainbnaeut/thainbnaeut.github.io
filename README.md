@@ -5,6 +5,18 @@ Ce site sera mis à jour à mesure que nous avançons dans les préparatifs.
 
 ![Chateau](https://github.com/thainbnaeut/thainbnaeut.github.io/blob/main/ch.jpeg?raw=true)
 
+Sommaire
+- [Informations pratiques](#informations-pratiques)
+  * [Adults-only](#adults-only)
+  * [Dress code](#dress-code)
+  * [Hébergement](#hebergement)
+  * [Dance Floor](#dance-floor)
+  * [Parking pour la mairie](#parking-pour-la-mairie)
+  * [Transport pour arriver à Dijon et au Château](#transport-pour-arriver-a-dijon-et-au-chateau)
+- [Points d'intérêts à visiter à et autour de Dijon](#points-d-interets-a-visiter-a-et-autour-de-dijon)
+- [Liste de mariage](#liste-de-mariage)
+- [Voyage de noces](#voyage-de-noces)
+
 ## Informations pratiques
 
 ### Plan de la journée
