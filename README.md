@@ -58,7 +58,7 @@ Seb & Caro mettront aussi à disposition des invités un tableau à craie pendan
 
 - Vous avez également la possibilité de vous garer à un parking relais et de vous rendre à la mairie en Tram (ticket à prendre en borne à l'arrêt de tram ou par paiement sans contact via carte bancaire à bord - attention une carte bancaire par ticket). 
  
-- Pour ceux en train, c'es tout droit depuis la gare, 15 min de marche (1,2 km). 
+- Pour ceux en train, c'est tout droit depuis la gare, 15 min de marche (1,2 km). 
 
 ### Transport pour arriver à Dijon et au Château
 
