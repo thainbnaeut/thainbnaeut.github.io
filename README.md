@@ -55,7 +55,7 @@ Seb & Caro mettront aussi à disposition des invités un tableau à craie pendan
 - Bourg-en-Bresse - Dijon: 1h45 en voiture; 2h45 en train
 - Lyon - Dijon: 2h en voiture, 2h en train 
 - Genève - Dijon: 2h45 en voiture; 2h45 en train pour l'option la plus courte
-- Zurich - Dijon: 2h30 en voiture; 2h30 en train
+- Zurich - Dijon: 3h30 en voiture; 2h30 en train
 - Annecy - Dijon: 3h en voiture; 4h en train
 - Montpellier - Dijon: 5h15 en voiture; 3h45 en train
 - Metz - Dijon: 2h45 en voiture; 4h30 en train
