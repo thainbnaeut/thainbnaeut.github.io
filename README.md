@@ -65,6 +65,7 @@ Seb & Caro mettront aussi à disposition des invités un tableau à craie pendan
 
 #### Pour arriver au Château après la mairie:
 Un certain nombre d'invités seront véhiculés. Nous avons préparé ce document pour que les invités non véhiculés puissent signaler leur besoin d'un covoiturage pour le trajet du samedi mairie vers Château et que les personnes ayant une place disponible se manifestent (nous les mettrons en contact): [Covoiturage](https://lite.framacalc.org/ube9okq9xm-9xua)   
+(La ligne [112] (https://www.viamobigo.fr/ftp/document/lr112.pdf) ne semble pas fonctionner le dimanche et l'offre de train [Saulon -> Dijon] (https://www.ter.sncf.com/bourgogne-franche-comte/offers?search=N4Ig9gTglg5lB2BJAJiAXCA8gYQKIA4B2QgRgGYA2AJnxABpxo550QBlAQwFcAbMFhpFgJEAZzYAXMAAcACjw4BjAKboJELsobJloiQg77%2BKVlRJUyJeiB16DRlhgAiUAFb9rt-fENRj4qTkFFXQAMw4eUS0QaQ5RKPgYZQhRdABtUChUDA5CChIOAE58CgBaZXwqRVKAFnwamtKOMkUy5QoKZFJlRQAGZF6AI2sOJPR4Xh4GRQ4IZDYuQdFFaEHk8cnp2eQAJWU4fgAVJggOAFsNnh4AXwBdbWVYiAkuCGUnQ1U0EgpCfABWQqEKi9UGghhQUSIM5nZTIKCfJyPWYvN5hCJRa5AA) est tres limitée le dimanche.) 
 
 ## Points d'intérêts à visiter à et autour de Dijon
 
