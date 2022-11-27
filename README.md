@@ -36,13 +36,21 @@ Pour la soirée, vous avez la possibilité d'indiquer vos titres favoris que vou
 Seb & Caro mettront aussi à disposition des invités un tableau à craie pendant la soirée pour les envies de dernière minute! 
 
 ### Parking pour la mairie
-Vous avez plusieurs solutions de parking pour votre venue à la mairie. Note: le samedi est jour de marché (de 8h à 13h)!  
-TBA
 
-Vous avez également la possibilité de vous garer à un parking relais et de vous rendre à la mairie en Tram (ticket à prendre en borne à l'arrêt de tram ou par paiement sans contact via carte bancaire à bord - attention une carte bancaire par ticket). 
+- Vous avez plusieurs solutions de parking pour votre venue à la mairie. Note: le samedi est jour de marché (de 8h à 13h)! Outre les places de stationnements en extérieur, vous avez les parkings souterrains suivants: 
+  - [Parking gare de Dijon - EFFIA](https://www.google.ch/maps/place/Parking+gare+de+Dijon+-+EFFIA/@47.3224896,5.0301464,16.26z/data=!3m1!5s0x47f29d941ca31f73:0xdb78b1efb5522bc!4m22!1m16!4m15!1m6!1m2!1s0x47f29de8f93892d5:0xe4f338fc749239ef!2sMairie+de+Dijon,+Place+de+la+Lib%C3%A9ration,+Dijon,+France!2m2!1d5.0415729!2d47.3218628!1m6!1m2!1s0x47f29d914b1fd2d3:0x6ac269754d1e85cd!2sGare+de+Dijon,+31+Cr+de+la+gare,+21000+Dijon,+France!2m2!1d5.027221!2d47.323363!3e2!3m4!1s0x0:0x1a8c5cbe7d1e7220!8m2!3d47.3240679!4d5.027809)   
+  - [Parking Dijon Darcy Liberté - Divia](https://www.google.ch/maps/place/Parking+Dijon+Darcy+Libert%C3%A9+-+Divia/@47.3218713,5.0381073,16.52z/data=!3m1!5s0x47f29d941ca31f73:0xdb78b1efb5522bc!4m22!1m16!4m15!1m6!1m2!1s0x47f29de8f93892d5:0xe4f338fc749239ef!2sMairie+de+Dijon,+Place+de+la+Lib%C3%A9ration,+Dijon,+France!2m2!1d5.0415729!2d47.3218628!1m6!1m2!1s0x47f29d914b1fd2d3:0x6ac269754d1e85cd!2sGare+de+Dijon,+31+Cr+de+la+gare,+21000+Dijon,+France!2m2!1d5.027221!2d47.323363!3e2!3m4!1s0x47f29dfaff8a56b1:0xa75b565e59946854!8m2!3d47.3234249!4d5.0338499)  
+  - [Parking Dijon Grangier - Divia](https://www.google.ch/maps/place/Parking+Dijon+Grangier+-+Divia/@47.3218713,5.0381073,16.52z/data=!3m1!5s0x47f29d941ca31f73:0xdb78b1efb5522bc!4m22!1m16!4m15!1m6!1m2!1s0x47f29de8f93892d5:0xe4f338fc749239ef!2sMairie+de+Dijon,+Place+de+la+Lib%C3%A9ration,+Dijon,+France!2m2!1d5.0415729!2d47.3218628!1m6!1m2!1s0x47f29d914b1fd2d3:0x6ac269754d1e85cd!2sGare+de+Dijon,+31+Cr+de+la+gare,+21000+Dijon,+France!2m2!1d5.027221!2d47.323363!3e2!3m4!1s0x0:0x8436a57ac621ed0e!8m2!3d47.3231838!4d5.0374678)
+  - [DiviaPark - Parking Condorcet](https://www.google.ch/maps/place/DiviaPark+-+Parking+Condorcet/@47.3222869,5.032873,16.52z/data=!3m1!5s0x47f29d941ca31f73:0xdb78b1efb5522bc!4m22!1m16!4m15!1m6!1m2!1s0x47f29de8f93892d5:0xe4f338fc749239ef!2sMairie+de+Dijon,+Place+de+la+Lib%C3%A9ration,+Dijon,+France!2m2!1d5.0415729!2d47.3218628!1m6!1m2!1s0x47f29d914b1fd2d3:0x6ac269754d1e85cd!2sGare+de+Dijon,+31+Cr+de+la+gare,+21000+Dijon,+France!2m2!1d5.027221!2d47.323363!3e2!3m4!1s0x47f29deabcfd17a7:0x3ef33cc4a0f81541!8m2!3d47.3196987!4d5.0332849)  
+  - [Parking Dijon Sainte-Anne - Divia](https://www.google.ch/maps/place/Parking+Dijon+Sainte-Anne+-+Divia/@47.3213745,5.0343535,16.52z/data=!3m1!5s0x47f29d941ca31f73:0xdb78b1efb5522bc!4m22!1m16!4m15!1m6!1m2!1s0x47f29de8f93892d5:0xe4f338fc749239ef!2sMairie+de+Dijon,+Place+de+la+Lib%C3%A9ration,+Dijon,+France!2m2!1d5.0415729!2d47.3218628!1m6!1m2!1s0x47f29d914b1fd2d3:0x6ac269754d1e85cd!2sGare+de+Dijon,+31+Cr+de+la+gare,+21000+Dijon,+France!2m2!1d5.027221!2d47.323363!3e2!3m4!1s0x0:0xb335908b1b6af831!8m2!3d47.3185326!4d5.0383434)   
+
+- Vous avez également la possibilité de vous garer à un parking relais et de vous rendre à la mairie en Tram (ticket à prendre en borne à l'arrêt de tram ou par paiement sans contact via carte bancaire à bord - attention une carte bancaire par ticket). 
+ 
+- Pour ceux en train, c'es tout droit depuis la gare, 15 min de marche (1,2 km). 
 
 ### Transport pour arriver à Dijon et au Château
 
+Pour arriver à Dijon:
 - Paris - Dijon: 3h30 en voiture; 1h40 en train
 - Bourg-en-Bresse - Dijon: 1h45 en voiture; 2h45 en train
 - Lyon - Dijon: 2h en voiture, 2h en train 
