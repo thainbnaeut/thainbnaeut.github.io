@@ -50,7 +50,7 @@ Seb & Caro mettront aussi à disposition des invités un tableau à craie pendan
 
 ### Transport pour arriver à Dijon et au Château
 
-Pour arriver à Dijon:
+#### Pour arriver à Dijon:
 - Paris - Dijon: 3h30 en voiture; 1h40 en train
 - Bourg-en-Bresse - Dijon: 1h45 en voiture; 2h45 en train
 - Lyon - Dijon: 2h en voiture, 2h en train 
@@ -62,6 +62,9 @@ Pour arriver à Dijon:
 - Marseille - Dijon: 5h15 en voiture; 4h en train
 - Bordeaux - Dijon: 7h en voiture; 6h en train
 - Vannes - Dijon: 7h15 en voiture; 6h en train
+
+#### Pour arriver au Château après la mairie:
+Un certain nombre d'invités seront véhiculés. Nous avons préparé ce document pour que les invités non véhiculés puissent signaler leur besoin d'un covoiturage pour le trajet du samedi mairie vers Château et que les personnes ayant une place disponible se manifestent (nous les mettrons en contact): [Covoiturage](https://lite.framacalc.org/ube9okq9xm-9xua)   
 
 ## Points d'intérêts à visiter à et autour de Dijon
 
