@@ -42,7 +42,7 @@ Nous avons décidé d'organiser cet évènement entre adultes. Pour ceux d'entre
 ... Non, c'est une blague, il n'y en a pas! A part peut-être éviter le blanc? ;) 
 
 ### Hébergement
-Une partie des invités pourra loger sur place pour la nuit de samedi à dimanche (carton spécifique prévu dans le faire-part d'invitation). N'hésitez pas à nous communiquer votre préférence pour une certaine catégorie de chambre (standard, supérieure, deluxe, junior suite ou suite) afin que nous en tenions compte dans le plan de chambres. Ceux qui souhaitent prolonger leur séjour pour la nuit du vendredi et/ou celle du dimanche peuvent nous contacter pour la réservation. 
+Une partie des invités pourra loger sur place pour la nuit de samedi à dimanche (carton spécifique prévu dans le faire-part d'invitation). Ceux qui souhaitent prolonger leur séjour pour la nuit du vendredi et/ou celle du dimanche peuvent nous contacter pour la réservation. 
 
 ### Dance Floor
 Pour la soirée, vous avez la possibilité d'indiquer vos titres favoris que vous voudriez absolument entendre passer sur le dance floor! Lien du fichier partagé: 
